@@ -1,4 +1,2 @@
 # training
-rskgkldfnklssfdnb' 
-bfgbfg
-febrw
+Тест
